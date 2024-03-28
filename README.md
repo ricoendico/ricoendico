@@ -1,9 +1,7 @@
 - Github: ricoendico
 - Youtube: Rico Endico
-- Instagram: @sbstianoo
-- Scripter / Mapper / Make Textdraw
+- Scripter / Mapper / Textdrawer
 - Gmail: ricoendicco@gmail.com
-- Support me: https://saweria.co/ricoendicco
 - Discord Server: https://bit.ly/lssycommunity
 
 <!---
